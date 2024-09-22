@@ -8,6 +8,7 @@
   eusuelicardoso@gmail.com
 
   sueli.perez@escola.pr.gov.br
-  
-  ![](![image](https://github.com/user-attachments/assets/92eb89aa-80c3-4bdd-8699-f1d83e9f96bf)
 
+  ![](https://media.tenor.com/gf8TH0b96cYAAAAj/kiss-me-love.gif)
+
+  
